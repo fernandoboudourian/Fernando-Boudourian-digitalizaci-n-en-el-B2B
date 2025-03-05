@@ -1,1 +1,2 @@
 # Fernando-Boudourian-digitalizaci-n-en-el-B2B
+El comercio B2B se redefine con la tecnología. La automatización permite optimizar la gestión de inventarios y la logística, mientras que la inteligencia artificial mejora la precisión en la toma de decisiones. Blockchain aporta transparencia y seguridad en las transacciones. Las empresas que adoptan estas herramientas ganan eficiencia y competitividad en un mercado digitalizado y global.
